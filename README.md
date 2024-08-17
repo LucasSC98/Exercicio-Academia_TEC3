@@ -1,0 +1,1 @@
+# Exercicio-Academia_TEC3
